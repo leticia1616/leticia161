@@ -1,1 +1,2 @@
-###ola seja bem vindos a minha pagina  ![](https://tenor.com/pt-BR/view/google-fu-keanu-i-know-google-fu-gif-18590077)
+###ola seja bem vindos a minha pagina                  
+![]https://tenor.com/pt-BR/view/facepalm-the-huxtables-raven-simone-the-cosby-show-gif-9140688
